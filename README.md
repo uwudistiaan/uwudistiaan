@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @uwudistiaan
+- 👀 I’m interested in science, space and everything studious
+- 🌱 I’m currently learning Physics and Computer Science
+- 💞️ I’m looking to collaborate on code projects idk
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: When the hunty slays, they boots the house down
